@@ -10,7 +10,7 @@
 ```
 
 
-![F L E C K](https://github.com/punk-l/punk-l/assets/70480704/ba1b18c0-fae1-4bc0-8efb-56fbf0ede3a7)
+![Punk](https://github.com/punk-l/punk-l/assets/70480704/ba1b18c0-fae1-4bc0-8efb-56fbf0ede3a7)
 
 
 
